@@ -11,3 +11,4 @@ These people frequently stream Leela games on Twitch:
 * [potato](https://www.twitch.tv/potato_chess)
 * [edosani](https://www.twitch.tv/edosani)
 * [ankan](https://www.twitch.tv/ankanban)
+* [vendablebbe420](https://www.twitch.tv/vendablebee420)
